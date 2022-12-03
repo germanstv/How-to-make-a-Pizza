@@ -8,6 +8,10 @@
 
     1.3  Ahora una vez lista, la dejamos reposar durante 1 hora más o menos dentro de una bolsa plastica. 
 
+2. INGREDIENTES DE PIZZA  
+      
+      2.1 Una vez tengamos nuesta masa lista, debemos darle forma, para esto vamos a espolvorear un poco de harina en nuestra tabla o meson donde estemos preparando la pizza y colocaremos nuestra masa, con la ayuda de un rodillo le daremos forma de manera que nos quede redonda.
+
 
     
  
