@@ -8,6 +8,14 @@
 
     1.3  Ahora una vez lista, la dejamos reposar durante 1 hora más o menos dentro de una bolsa plastica. 
 
+2. INGREDIENTES DE PIZZA  
+      
+    2.1 Una vez tengamos nuesta masa lista, debemos darle forma, para esto vamos a espolvorear un poco de harina en nuestra tabla o meson donde estemos preparando la pizza y colocaremos nuestra masa, con la ayuda de un rodillo le daremos forma de manera que nos quede redonda.  
+        
+    2.2 Procedemos a colorar una capa de pasta de tomate y posteriormente la primera capa de queso.  
+      
+    2.3 Agregamos piña y jamon para completar la pizza Hawaiana.
+
 
     
  
