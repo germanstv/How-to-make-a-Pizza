@@ -8,12 +8,8 @@
 
     1.3  Ahora una vez lista, la dejamos reposar durante 1 hora más o menos dentro de una bolsa plastica. 
 
-3. 
-precalentar el horno a 180°   
-prepara la tabla para para poder la pizza  
-poner piza en el horno  
-configurar el tiempo del horno  
-empacar en caja  
+3. HORNEAR PIZZ 
+
 
 
     
